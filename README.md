@@ -1,1 +1,1 @@
-copyrights 2024 Gianmarco Lugaresi
+2024 Gianmarco Lugaresi
