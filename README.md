@@ -1,1 +1,3 @@
-2025 Gianmarco Lugaresi
+2025 Copyright Gianmarco Lugaresi
+
+progetto pubblicato su kickstarter
