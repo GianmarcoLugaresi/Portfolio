@@ -1,3 +1,2 @@
-2025 Copyright Gianmarco Lugaresi
+2025  Gianmarco Lugaresi
 
-progetto pubblicato su kickstarter
